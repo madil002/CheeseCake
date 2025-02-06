@@ -40,4 +40,4 @@
 1. Once chilled, slice and enjoy your homemade cheesecake!
 
 **Optional Topping:**
-- Fresh fruit or fruit preserves.
+- Fresh fruit or fruit preserves
